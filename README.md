@@ -27,7 +27,7 @@ https://weibo42.com
 
 https://weibo43.com
 
-黑料网备用地址1 ：
+黑料备用地址1 ：
 
 https://wb4.co
 
