@@ -21,7 +21,7 @@ nhav.xyz@gmail.com
 
 内涵吃瓜网最新地址 ：
 
-https://weibo43.com
+https://weibo42.com
 
 内涵吃瓜网永久地址(翻墙访问 永不迷路)：
 
@@ -29,11 +29,11 @@ https://weibo43.com
 
 内涵吃瓜网备用地址1 ：
 
-https://wb4.co/
+https://wb4.co
 
 内涵吃瓜网备用地址2 ：
 
-https://wb8.co/
+https://wb8.co
 
 下载内涵吃瓜app (免费吃瓜 每日更新) ：
 
